@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning using GitHub and How to Improve LinkedIn
 - 💞️ I’m looking to collaborate on a project linked to people management
 - 📫 How to reach me linkedin.com/in/danubia-scferraz-63404048 ,
-- 😄 Pronouns: ...
 - ⚡ Fun fact: I love learning new languages ​​and I'm studying English!
 
 <!---
